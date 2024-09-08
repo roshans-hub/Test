@@ -8,7 +8,7 @@ A Passionate Data Scientist and Business Analyst
 
 💬 Ask me anything about Data, AI, ML, PowerBI, DataBases....
 
-📫 How to reach me shalinikaripe0224@gmail.com
+📫 How to reach me roshansinbox5@gmail.com
 
 📄 My Resume https://drive.google.com/file/d/1v7PB9OhTnw887iHxrN0QJdJDOscweNh7/view?usp=sharing
 
